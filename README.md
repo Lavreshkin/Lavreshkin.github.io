@@ -1,3 +1,12 @@
 # Lavreshkin.github.io
 ![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/Copy1.jpg)
 ![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/Copy2.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/Godfather.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/Great_Britain.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/On_a_branch.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/Round.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/circus.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/index.html)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/original.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/with the president.jpg)
+![](https://github.com/Lavreshkin/Lavreshkin.github.io/blob/main/with the president3.jpg)
